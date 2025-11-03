@@ -1,0 +1,1 @@
+# CropWise-Predictive-Modelling-and-Resource-Planning-for-Sustainable-Agriculture
